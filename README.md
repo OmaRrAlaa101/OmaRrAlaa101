@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **python**
 
-- 📫 How to reach me **alyomar566@gmail.com**
+- 📫 How to reach me **alyomar566@gmail.com** , **linkedin.com/in/omar-aly-958437245**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
